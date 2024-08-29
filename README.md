@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Divyanshh0406
+- 👋 Hi, I’m @Divyanshh
 - 👀 I’m interested in Artificial Intelligence And Tech
-+91 7832099249
+- +91 7832099249
